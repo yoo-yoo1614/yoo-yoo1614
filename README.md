@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **Open Source**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1R3y6BuFBFNEG1F4Oi48BMBLn64lbdizG/view?usp=drive_link](https://drive.google.com/file/d/1R3y6BuFBFNEG1F4Oi48BMBLn64lbdizG/view?usp=drive_link)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
